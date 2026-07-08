@@ -50,8 +50,8 @@ I am an Operations and Customer Service Specialist with **8+ years** of experien
 
 ## 📫 Connect With Me
 
-- **LinkedIn:** [linkedin.com/in/musaddaqhassan](https://linkedin.com/in/musaddaq.hassan.pro)
-- **Instagram:** [instagram.com/musaddaqhassan](https://instagram.com/musaddaq.hassan.pro)
+- **LinkedIn:** [linkedin.com/in/musaddaq.hassan.pro](https://linkedin.com/in/musaddaq.hassan.pro)
+- **Instagram:** [instagram.com/musaddaq.hassan.pro](https://instagram.com/musaddaq.hassan.pro)
 - **Email:** musaddaq.hassan.pro@proton.me
 
 ---
